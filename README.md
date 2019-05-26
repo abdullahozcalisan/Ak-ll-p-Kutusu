@@ -1,1 +1,1 @@
-# Ak-ll-p-Kutusu
+# Smart Garbage
